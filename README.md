@@ -1,8 +1,7 @@
 Samuel David Achimugu    
 Abuja
 samdav632@gmail.com
-09026523632, 09125683738, 08105302335 
-
+09026523632
 I Am Dynamic and detail-oriented professional with a strong background in statistics and data analysis. Passionate about leveraging analytical skills to foster meaningful connections and enhance community engagement. Eager to contribute to innovative projects and collaborate with like-minded individuals.
 
 - **Communication**: Excellent written and verbal communication skills, adept at conveying complex ideas clearly.
